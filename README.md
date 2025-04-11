@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **loganmelgoza@ucsb.edu**
 
-- ⚡ Fun fact **Sports and Anime are my thing ;)**
+- ⚡ Fun fact **I love sports!The NY Knicks, SF Giants, and SF 49ers are my teams ;)**
 
 <h3 align="left">Resume:</h3>
 <p align="left">
